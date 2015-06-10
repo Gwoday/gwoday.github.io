@@ -1,1 +1,0 @@
-# gwoday.github.io
